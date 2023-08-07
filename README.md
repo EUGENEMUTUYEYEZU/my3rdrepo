@@ -1,2 +1,2 @@
 # my3rdrepo
-my personal repository is goodooo l wanna know more about tech 
+my personal repository is goodooo l wanna know more about tech !!!
